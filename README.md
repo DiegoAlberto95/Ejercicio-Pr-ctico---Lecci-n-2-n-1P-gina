@@ -1,1 +1,1 @@
-# Ejercicio-Pr-ctico---Lecci-n-2-n-1P-gina
+# Ejercicio-Practico Leccion2 N1Pagina
